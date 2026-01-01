@@ -21,4 +21,4 @@ We take reasonable measures to protect user information.
 
 ## Contact
 If you have any questions, contact us at:
-prepzone.app@gmail.com
+prepzone504@gmail.com
